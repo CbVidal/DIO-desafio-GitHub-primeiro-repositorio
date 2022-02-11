@@ -20,7 +20,7 @@ Os problemas acima foram exemplos de problemas que ocorrem no dia a dia de um ci
 mas isso não importa, oque eu quero dizer é que, cada um tem um tipo de problema o qual o nomeamos de "leão",
 matar um "leão" por dia é exatamente vencer os problemas e avançar.
 
-# Seus leões são do tamanho que você define!
+# Seus leões são do tamanho que você define ser!
 
 Cada um define o tamanho dos seus problemas. Como exemplo temos o "Pedro" e "João" (nomes fictícios),
 ambos moram na mesma rua e são de familias humildes. O "João" diz que ir a escola para estudar e aprender, é um problema 
