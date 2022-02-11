@@ -23,11 +23,11 @@ matar um "leão" por dia é exatamente vencer os problemas e avançar.
 # Seus leões são do tamanho que você define!
 
 Cada um define o tamanho dos seus problemas. Como exemplo temos o "Pedro" e "João" (nomes fictícios),
-ambos moram na mesma rua e são de familias humildes. O "João" diz que ir a escola para estudar e aprender é um problema, 
-é doloroso e chato estar em uma sala de aula, "Pedro" diz que estar em uma sala de aula e apreder a cada dia mais, é a
+ambos moram na mesma rua e são de familias humildes. O "João" diz que ir a escola para estudar e aprender, é um problema 
+é doloroso e chato, que estar em uma sala de aula é horrível. "Pedro" diz que estar em uma sala de aula e apreder a cada dia mais, é a
 oportunidade de um dia poder proporcionar uma vida melhor para os seus pais. Logo temos dois exemplos de "leoes" sendo que,
-em tamanhos diferentes, o João o exergar como um enorme problema, já o Pedro diz ser, um probleminha que pode ser a solução para outros problemas grandes.
-NÃO EXALTE O SEU LEÃO, POR MAIOR QUE ELE PAREÇA SER, ELE NUNCA SERÁ TÃO GRANDE QUANTO A VOCÊ, E MUITAS DAS VEZES O SEU LEÃO É A PONTE PARA CONQUISTA DOS 
+em tamanhos diferentes, o João o exergar como um enorme problema, já o Pedro, diz ser um probleminha que pode ser a solução para outros problemas grandes.
+NÃO EXALTE O SEU LEÃO POR MAIOR QUE ELE PAREÇA SER, ELE NUNCA SERÁ TÃO GRANDE QUANTO VOCÊ. MUITAS DAS VEZES O SEU LEÃO É A PONTE, PARA CONQUISTA DOS 
 SEUS OBJETIVOS. SEJA FORTE E POSITIVO!
 
 															- Dayvit Vidal
