@@ -6,7 +6,7 @@
 # Não foque em seus objetivos, em vez disso, foque nos hábitos que o levarão até eles. Sempre vai ser VOCÊ contra VOCÊ!💀
 
 
-			##O mundo não é justo e sozinhos não somos capazes de fazer a diferença.
+			## O mundo não é justo e sozinhos não somos capazes de fazer a diferença.
 
 TI é ser solução para o problema. Matar um leão por dia não faz parte da dificuldade do seu dia,
 e sim do que você é capaz de suportar até chegar ao seu objetivo.
@@ -28,5 +28,7 @@ oportunidade de um dia poder proporcionar uma vida melhor para os seus pais. Log
 em tamanhos diferentes, o João o exergar como um enorme problema, já o Pedro diz ser, um probleminha que pode ser a solução para outros problemas grandes.
 NÃO EXALTE O SEU LEÃO, POR MAIOR QUE ELE PAREÇA SER, ELE NUNCA SERÁ TÃO GRANDE QUANTO A VOCÊ, E MUITAS DAS VEZES O SEU LEÃO É A PONTE PARA CONQUISTA DOS 
 SEUS OBJETIVOS. SEJA FORTE E POSITIVO!
+
+															- Dayvit Vidal
 
 
