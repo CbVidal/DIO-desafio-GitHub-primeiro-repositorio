@@ -22,7 +22,7 @@ matar um "leão" por dia é exatamente vencer os problemas e avançar.
 
 # Seus leões são do tamanho que você define!
 
-Cada um define o tamanho dos seus problemas. Como exemplo temos o "Pedro" e "João" (nomes ficticeis),
+Cada um define o tamanho dos seus problemas. Como exemplo temos o "Pedro" e "João" (nomes fictícios),
 ambos moram na mesma rua e são de familias humildes. O "João" diz que ir a escola para estudar e aprender é um problema, 
 é doloroso e chato estar em uma sala de aula, "Pedro" diz que estar em uma sala de aula e apreder a cada dia mais, é a
 oportunidade de um dia poder proporcionar uma vida melhor para os seus pais. Logo temos dois exemplos de "leoes" sendo que,
