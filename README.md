@@ -8,14 +8,15 @@
 
 			## O mundo não é justo e sozinhos não somos capazes de fazer a diferença.
 
-TI é ser solução para o problema. Matar um leão por dia não faz parte da dificuldade do seu dia,
-e sim do que você é capaz de suportar até chegar ao seu objetivo.
+TI é ser solução para o problema. Matar um leão por dia não faz parte da "dificuldade" do seu dia,
+e sim do que você é capaz de suportar até chegar ao seu objetivo. Falo de superar os obstaculos da vida e seguir em frente,
+não se chega a lugar algum se ficarmos parado somente em um lugar, pois "Uma longa viagem começa com um único passo." Lao-Tsé
 
 Todos os dias enfrentamos um tipo de dificuldade como: acordar cedo, pegar um onibus lotado, 
 chegar até o trabalho, cumprir demandas, ouvir muitas das vezes oque não deveria ouvir,
 chegar em casa cansado e ainda estudar para aprimorar o conhemento etc...
 
-Os problemas acima foram exempros de problemas que ocorrem no dia a dia de um cidadão, o seus problemas podem serem outros,
+Os problemas acima foram exemplos de problemas que ocorrem no dia a dia de um cidadão, o seus problemas podem serem outros,
 mas isso não importa, oque eu quero dizer é que, cada um tem um tipo de problema o qual o nomeamos de "leão",
 matar um "leão" por dia é exatamente vencer os problemas e avançar.
 
