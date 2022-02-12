@@ -5,8 +5,6 @@
 
 # Não foque em seus objetivos, em vez disso, foque nos hábitos que o levarão até eles. Sempre vai ser VOCÊ contra VOCÊ!💀
 
-
-<<<<<<< HEAD
 TI é ser solução para o problema. Matar um leão por dia não faz parte da “dificuldade” do seu dia, e sim do que você é capaz de suportar até chegar ao seu objetivo. Falo de superar os obstáculos da vida e seguir em frente, não se chega a lugar algum se ficarmos parado somente em um lugar, pois “Uma longa viagem começa com um único passo.” Lao-Tsé
 
 Todos os dias enfrentamos um tipo de dificuldade como: acordar cedo, pegar um ônibus lotado, chegar até o trabalho, cumprir demandas, ouvir muitas das vezes oque não deveria ouvir, chegar em casa cansado e ainda estudar para aprimorar os conhecimentos, etc...
