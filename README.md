@@ -1,7 +1,7 @@
 # Desafio de Projeto sobre Git/GitHub da DIO
  Respositório criado para o desafio de projeto.
 
-# Motivacioal
+# Motivacional
 
 ## Não foque em seus objetivos, em vez disso, foque nos hábitos que o levarão até eles. Sempre vai ser VOCÊ contra VOCÊ!
 
