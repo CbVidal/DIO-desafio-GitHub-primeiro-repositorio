@@ -39,7 +39,7 @@ Nesse caso, usaremos o bom senso ao nosso favor. Achar o meio termo e distinguir
 
 
 ![image](https://user-images.githubusercontent.com/99299235/153711463-6c9f10d8-8f1f-40fe-93aa-03744a8c638f.png)
-
+Olhar altivo, pensamentos nobres...
 												
 		- Dayvit Vidal
 
