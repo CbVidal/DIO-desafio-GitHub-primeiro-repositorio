@@ -1,12 +1,12 @@
-# CLONAR 
+## CLONAR 
 
-OBS> Você deverá ter instalado em seu pc o Git/GitHub
+### OBS> Você deverá ter instalado em seu pc o Git/GitHub
 
 - https://www.youtube.com/watch?v=gMh6lrXibWY&list=PLHz_AreHm4dm7ZULPAmadvNhH6vk9oNZA&index=5
 - https://www.youtube.com/watch?v=5BYm7UdCrX0&list=PLHz_AreHm4dm7ZULPAmadvNhH6vk9oNZA&index=5
 
 
-- Entre no https://github.com/;
+- Entre no https://github.com/ ;
 
 - Clique na foto do seu perfil localizada no canto superior a direita da tela;
 
