@@ -14,7 +14,7 @@ Os problemas acima foram exemplos de problemas que ocorrem no dia a dia de um ci
 ## Seus leões são do tamanho que você define ser!
 
 Cada um define o tamanho dos seus problemas. Como exemplo temos o "Pedro" e "João" (nomes fictícios), ambos moram na mesma rua e são de famílias humildes. O "João" diz que ir a escola para estudar e aprender, é um problema é doloroso e chato, que estar em uma sala de aula é horrível. "Pedro" diz que estar em uma sala de aula e aprender a cada dia mais, é a oportunidade de um dia poder proporcionar uma vida melhor para os seus pais. Logo temos dois exemplos de "leões" sendo que, em tamanhos diferentes, o João o enxergar como um enorme problema, já o Pedro, diz ser um probleminha que pode ser a solução para outros problemas grandes. 
-NÃO EXALTE O SEU LEÃO POR MAIOR QUE ELE PAREÇA SER, ELE NUNCA SERÁ TÃO GRANDE QUANTO VOCÊ. MUITAS DAS VEZES O SEU LEÃO É A PONTE, PARA CONQUISTA DOS SEUS OBJETIVOS. SEJA FORTE E POSITIVO!
+##### NÃO EXALTE O SEU LEÃO POR MAIOR QUE ELE PAREÇA SER, ELE NUNCA SERÁ TÃO GRANDE QUANTO VOCÊ. MUITAS DAS VEZES O SEU LEÃO É A PONTE, PARA CONQUISTA DOS SEUS OBJETIVOS. SEJA FORTE E POSITIVO!
 
 Todos nós estamos sujeitos a dificuldades, obstáculos e guerras internas. Existem coisas que basta VOCÊ para resolver, mas existem coisas que necessitam de pessoas unidas para serem vencidas.
 
