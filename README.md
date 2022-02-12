@@ -19,7 +19,7 @@ NÃO EXALTE O SEU LEÃO POR MAIOR QUE ELE PAREÇA SER, ELE NUNCA SERÁ TÃO GRAN
 Todos nós estamos sujeitos a dificuldades, obstáculos e guerras internas. Existem coisas que basta VOCÊ para resolver, mas existem coisas que necessitam de pessoas unidas para serem vencidas.
 
 
-## O mundo não é justo e sozinhos não somos capazes de fazer a diferença.
+#### O mundo não é justo e sozinhos não somos capazes de fazer a diferença.
 
 ### TENHA UM AMIGO!
 
