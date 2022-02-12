@@ -36,7 +36,11 @@ Para Aristóteles, o bom senso é “elemento central da conduta ética, uma cap
 Se seus problemas são internos, contra você e seus conflitos, medos, insegurança, ansiedades, sentimentos internos gerados pelas forma de absorver as coisas que acontecem ao seu redor, sentimentos familiar, relacionamento, compromissos, etc... Seu leão é diferente! 
 
 Nesse caso, usaremos o bom senso ao nosso favor. Achar o meio termo e distinguir a ação correta. O leão dessa vez não é seu adversário, o leão agora se encontra em você, você é o leão! Você deverá lutar de forma sábia e astuta, onde as coisas ruins que te atingem, venham temer a grandeza de sua força e coragem. Os confrontos jamais deixaram de existir, mas em meio a “selva da vida” você é o “leão”, você é o Rei da selva, dono da sua vida, e com sabedoria, força e coragem, determinará que a partir desse momento “eles que lutem” para te derrubar pois você está no controle. Se você se encontra nessa situação, lute com um olhar diferente, não perca sua essência e majestade.
+
+
+![image](https://user-images.githubusercontent.com/99299235/153711463-6c9f10d8-8f1f-40fe-93aa-03744a8c638f.png)
+
 												
-															- Dayvit Vidal
+		- Dayvit Vidal
 
 
