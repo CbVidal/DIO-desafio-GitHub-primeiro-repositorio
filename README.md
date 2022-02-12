@@ -3,7 +3,7 @@
 
 # Motivacioal
 
-## Não foque em seus objetivos, em vez disso, foque nos hábitos que o levarão até eles. Sempre vai ser VOCÊ contra VOCÊ!💀
+## Não foque em seus objetivos, em vez disso, foque nos hábitos que o levarão até eles. Sempre vai ser VOCÊ contra VOCÊ!
 
 TI é ser solução para o problema. Matar um leão por dia não faz parte da “dificuldade” do seu dia, e sim do que você é capaz de suportar até chegar ao seu objetivo. Falo de superar os obstáculos da vida e seguir em frente, não se chega a lugar algum se ficarmos parado somente em um lugar, pois “Uma longa viagem começa com um único passo.” Lao-Tsé
 
