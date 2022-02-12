@@ -23,7 +23,7 @@ Todos nós estamos sujeitos a dificuldades, obstáculos e guerras internas. Exis
 
 ### TENHA UM AMIGO!
 
-### “Ter um amigo é um tesouro sem preço, um gostar sem distância, de alguém presente em nosso caminho, nas horas de dúvida, de alegria, demais para ser perdido, importante para ser esquecido…” Antoine de Saint-ExupéryPENSE!
+#### “Ter um amigo é um tesouro sem preço, um gostar sem distância, de alguém presente em nosso caminho, nas horas de dúvida, de alegria, demais para ser perdido, importante para ser esquecido…” Antoine de Saint-ExupéryPENSE!
 
 Muitas das vezes “lutar sem pensar” é como dar murro em ponto de faca, insistir em algo que aparentemente não dará certo, persistir sem ver resultado. Existem casos que a melhor forma de vencer uma guerra é retrair aos ataques, se defendendo e economizando forças, até que o inimigo se desgaste e perca a luta por cansaço. 
 
